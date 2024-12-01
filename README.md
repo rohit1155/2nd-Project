@@ -1,1 +1,1 @@
-THIS IS 2ND PROJECT Markek Segmentation Analysis
+THIS IS 2ND PROJECT Market Segmentation Analysis
